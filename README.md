@@ -16,7 +16,7 @@ Adapted from Addie Shukausky✨
 - 1/2 cup white sugar
 - 3/4 cup brown sugar
 - 1 teaspoon salt
-- 1/2 teaspoon baking soda
+- 1 teaspoon baking soda
 - 1 1/4 cup flour
 - 1 egg
 - A dash of vanilla extract
