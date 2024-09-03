@@ -3,7 +3,7 @@
 
 ![cookie](cookie.jpg)
 
-Full of chocolate and toffee chunks, these cookies are sure to please
+Full of chocolate and toffee chunks, these cookies are sure to please. I learned to make these cookies last year and now make them for almost any event, with people constantly asking me for them. The original recipe is quite bare, so I have adapted the steps through the trial and error I have done for the past few months of making these. 
 
 
 
