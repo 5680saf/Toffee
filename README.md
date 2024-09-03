@@ -30,7 +30,7 @@ Typically I use the Trader Joe's Toffee Chips. They can be a bit more on the pri
 # Instructions
 1) Brown the stick of butter in a pot on the stove. Let cool for 15 minutes. 
 >See below if unsure how to brown butter.
-2) While the butter is cooling, coarsely chop the Hershey's Bar and the toffee chips. Set to the side.
+2) While the butter is cooling, coarsely chop the Hershey's Bar and the toffee chips. Set to the side, or in the fridge if the kitchen is hot. 
 2) Mix together the white sugar, brown sugar, salt, and baking soda. Add the butter and dash of vanilla extract and mix well.
 3) Add the egg and mix until creamy.
 4) Add in the flour 1/4 cup at a time.
