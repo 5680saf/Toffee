@@ -1,5 +1,5 @@
 
-## How to make the best toffee chocolate cookies _Ever_
+## How to make the best toffee chocolate cookies _ever_
 
 ![cookie](cookie.jpg)
 
