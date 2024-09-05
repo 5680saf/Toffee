@@ -3,7 +3,7 @@
 
 ![cookie](cookie.jpg)
 
-Full of chocolate and toffee chunks, these cookies are sure to please. I learned to make these cookies last year and now make them for almost any event, with people constantly asking me for them. The original recipe is quite bare, so I have adapted the steps through the trial and error I have done for the past few months of making these. 
+Full of chocolate and toffee chunks, these cookies are sure to please. I learned to make these cookies last year and now make them for almost any event, with people constantly asking me for them. The original recipe is quite bare, so I adapted the steps through the trial and error from the past few months of making these. 
 
 
 
@@ -30,7 +30,7 @@ Typically I use the Trader Joe's Toffee Chips. They can be a bit more on the pri
 # Instructions
 1) Brown the stick of butter in a pot on the stove. Let cool for 15 minutes. 
 >See below if unsure how to brown butter.
-2) While the butter is cooling, coarsely chop the Hershey's Bar and the toffee chips and set to the side, or in the fridge if the kitchen is hot. 
+2) While the butter cools, coarsely chop the Hershey's Bar and the toffee chips and set to the side, or in the fridge if the kitchen is hot. 
 2) Mix together the white sugar, brown sugar, salt, and baking soda.
 2) Add the butter and dash of vanilla extract and mix well.
 3) Add the egg and mix until creamy.
@@ -43,7 +43,7 @@ Typically I use the Trader Joe's Toffee Chips. They can be a bit more on the pri
 # How to Brown Butter
 > Browning butter is a great way to add a nutty and bold flavor to your cookies.
 
-To brown your butter, place your stick in a pan with medium heat. The butter will melt and then begin to sizzle. Keep an eye on the butter and keep stirring. Eventually, the butter will separate and look like this, and you'll know your butter is officially browned:
+To brown your butter, place your stick in a pan with medium heat. The butter will melt and then begin to sizzle. Watch the butter and keep stirring. Eventually, the butter will separate and look like this, and you'll know your butter is officially browned:
 ![Browned](browned.jpg)
 *Note: There is a very fine line between browned butter and burnt butter, so try to keep an eye on it and keep stirring to avoid burning.
 
